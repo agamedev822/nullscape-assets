@@ -2,3 +2,5 @@
 i made this repo for the ones who want to make nullscape memes and stuff!
 
 have fun!
+
+(also i downloaded the stuff from the wiki)
